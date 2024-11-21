@@ -34,6 +34,32 @@ Hebrews (2:16-18) - he took not on the nature of immaculate conception, he was m
 Description Of Christ 
 - 1st Coming (30-33) did not have a head full of white hair --> Mark (14:42-44)
 - 2nd Cmoing: Revelation (1:14-16)
+- Daniel (10:5-6) 
 
 Red Eyes of Christ
 Genesis (49:12) --> red with wine
+
+7 Stars & 7 golden candlesticks 
+Rev (1:20) --> 7 stars are the angels (leaders of the churches) of the 7 churches, 7 candle sticks are the 7 churches
+
+
+The Angels of The Churches 
+Galations (4:14) --> 
+1 Corinthinas (6:3) --> 
+1 Corinthians (11:10) --> She has power to cover her head obediantly because of the men (leadership) | angels are the israelite men 
+Matthew (19:28) --> Power to make judgement over the 12 tribes of israel 
+Revelation (20:4) 
+2nd Samuel (14:17) --> my husband is as a angel of the lord
+1st Samuel (29:9)
+
+
+Two Edged Sword 
+- Hebrews (4:12) - The Word Of God is a Two Edged Sword 
+
+
+Countenance was as the sun
+
+Keys of Hell & Death --> your sins are retained
+Matthew (16-19) --> what sins are not gorgiven in earth are not forgiven in heaven, what is forgiven on earth is not forgiven in heaven. 
+John (20-23) --> sins are retained, you must go to people and get forgiveness, and give forgiveness 
+Rev (3:7) the keys 
