@@ -1,7 +1,7 @@
 # Litany Against Fear
 #### Date: 11/26/2024
 #### Purpose: Rebuking Fear
-#### Edition: Revised from original litany of fear by dune
+#### Edition: Original
 ____
 
 I shall not fear.  
@@ -27,7 +27,7 @@ ___
 2. **2 Timothy 1:7** – "For God gave us a spirit not of fear but of power and love and self-control."  
 3. **Psalm 34:4** – "I sought the Lord, and he answered me; he delivered me from all my fears."  
 4. **John 14:27** – "Peace I leave with you; my peace I give you. I do not give to you as the world gives. Do not let your hearts be troubled and do not be afraid."  
-5. **Philippians 4:6-7** – "Do not be anxious about anything, but in every situation, by prayer and petition, with thanksgiving, present your requests to God. And the peace of God, which transcends all understanding, will  
+5. **Philippians 4:6-7** – "Do not be anxious about anything, but in every situation, by prayer and petition, with thanksgiving, present your requests to God. And the peace of God, which transcends all understanding, will 
 guard your hearts and your minds in Christ Jesus."  
 6. **Psalm 56:3** – "When I am afraid, I put my trust in you."  
 7. **Matthew 6:34** – "Therefore do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own."  
