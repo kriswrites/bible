@@ -1,4 +1,7 @@
 # Litany Against Fear
+#### Date: 11/26/2024
+#### Purpose: Rebuking Fear
+#### Edition: Revised from original litany of fear by dune
 ____
 
 I shall not fear.  
