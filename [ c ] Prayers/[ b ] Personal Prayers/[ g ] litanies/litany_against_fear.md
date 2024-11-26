@@ -1,11 +1,13 @@
 # Litany Against Fear
 ____
 
-I must not fear.  
+I shall not fear.  
 
-Fear is the enemy of faith.  
+Fear is the faith killer.  
 
-Fear is the barrier that distorts the promises of God.  
+Fear is the gateway to sin, and sin is the beginning of death.
+
+Fear distorts the word of life.  
 
 I will not let fear control me.  
 
