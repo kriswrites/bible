@@ -24,6 +24,10 @@ What does it mean to keep the law perfectly? -> To follow all the laws conciousl
 1 John 3:9-12 - If you are born of God you will do no sin , this is the message you have heard from the start
 
 Romans 2:13 - Hearers of the law are not just, but those that keep the law  
+
+Romans 2:12 - You will be judged by the law whether you know it or not
+
+Romans 6:23 - The wages of sin are death, the gift of god is the life (law)
   
   
 **Counter Points**
