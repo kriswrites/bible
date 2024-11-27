@@ -17,8 +17,8 @@ What is sin? -> according to 1 John 3:4 sin is the transgression of the law
 Who commits sin? -> according to James 4:17, If you do wrong while knowing it is wrong you are comitting sin   
 
 What does it mean to keep the law perfectly? -> To follow all the laws conciously, and to repent when you find out something is sin  
-
-
-Counter Points
+  
+  
+**Counter Points**
 - Romans 3:23, all have sinned and come short of the glory of god. --> this was addressed specifically to the gentiles in rome.
 - Jeremiah 31:31-34 Everyman already has the laws written on their heart. --> this is the new covenant and takes place after the Day Of The Lord it will also be with Isreal and Judah only. 
