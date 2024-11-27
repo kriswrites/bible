@@ -17,6 +17,12 @@ What is sin? -> according to 1 John 3:4 sin is the transgression of the law
 Who commits sin? -> according to James 4:17, If you do wrong while knowing it is wrong you are comitting sin   
 
 What does it mean to keep the law perfectly? -> To follow all the laws conciously, and to repent when you find out something is sin  
+
+**Additional Points** 
+
+1 John 3:9 - If you are born of God you will do no sin  
+
+Romans 2:13 - Hearers of the law are not just, but those that keep the law  
   
   
 **Counter Points**
